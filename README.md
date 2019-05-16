@@ -6,7 +6,7 @@ Main starter video where the house is first created
 
 Join my Udemy Course, Sweet Home 3D for Beginners at
 
-https://www.udemy.com/sweet-home-3d-for-beginners/?couponCode=SEANWASERE_YTBE
+- https://www.udemy.com/sweet-home-3d-for-beginners/?couponCode=SEANWASERE_YTBE
 
 
 
